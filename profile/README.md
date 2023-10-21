@@ -9,8 +9,8 @@
 </hr>
 
 
-![delicious-burger-with-many-ingredients-isolated-white-background-tasty-cheeseburger-splash-sauce__2_-removebg-preview (2)](https://github.com/YEBEA-LTD-STI/.github/assets/91744618/96de3620-2f0e-4e51-b3e0-b58a2bf7d9bb)
 
+![delicious-burger-with-many-ingredients-isolated-white-background-tasty-cheeseburger-splash-sauce__2_-removebg-preview (2)](https://github.com/YEBEA-LTD-STI/.github/assets/91744618/96de3620-2f0e-4e51-b3e0-b58a2bf7d9bb)
 
 
 <h1>İletişim</h1>
